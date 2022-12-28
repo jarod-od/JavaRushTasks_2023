@@ -1,0 +1,1 @@
+Java rush tasks will be here and my progression in it.
